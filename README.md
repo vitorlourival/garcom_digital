@@ -1,1 +1,0 @@
-# garcom_digital
